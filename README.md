@@ -1,8 +1,7 @@
 # Vasuki Varadhan
 ## Senior Software Engineer (Multi Stack)
 
-📍 Chennai, TamilNadu, India
-🔗 [LinkedIn Profile](https://linkedin.com/in/vasuki-v-34378a21b) | ⚡ **Immediate Availability**
+📍 Chennai, TamilNadu, India | ⚡ **Immediate Availability**
 
 ---
 
